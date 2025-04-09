@@ -1,2 +1,2 @@
-# Weex-Referral-Code-8hdlo-Get-60-Bonus-
+# Weex Referral Code "8hdlo" (Get 60%-Bonus )
 Use the  "8hdlo" to get 60% off on trading fees for a lifetime on Weex. This lifetime discount will apply to all your trades, making it a fantastic ...
